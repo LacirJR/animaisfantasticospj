@@ -1,1 +1,1 @@
-# https://animaisfantasticospj.io/index.html
+# https://animaisfantasticospj.io/
